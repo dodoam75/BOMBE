@@ -1,3 +1,3 @@
-un viruse BOMBE tout simplement
+un virus BOMBE tout simplement
 
-VEUILLER FAIRE ATTENTION NE PAS L'EXCUTER !
+VEUILLEZ FAIRE ATTENTION À NE PAS L'EXÉCUTER !
