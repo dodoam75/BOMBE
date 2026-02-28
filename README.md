@@ -1,0 +1,3 @@
+un viruse BOMBE tout simplement
+
+VEUILLER FAIRE ATTENTION NE PAS L'EXCUTER !
